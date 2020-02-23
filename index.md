@@ -1,0 +1,21 @@
+# Friday, December 8, 1922
+
+A strange night, but probably just the beginning. Let me catch a few quick thoughts before I collapse. I will need my energy tomorrow.
+
+I was right on time to the meeting at the Sugar Cane Club with Jackson Elis that Max has set up. Before I even made it into the meeting, I saw a musician come in with the strangest trumpet I'd ever seen. It was covered with a shimmery craqueleur and had an extra key. It didn't even look playable, but sure enough, the music was hopping in a split. I was in such an occult mindset heading into this meeting, admittedly, that I had to calm my mind from chasing my imagination. Suddenly, there was a gunshot and a very harried man (the shooter, I learn) who ran right over the top of me towards the back entrance. The trumpeter continued to play though the rest of the band had stopped. As I ran down the opposite hallway, Max fired after the gunman. I peeked out the stage door and just missed the trumpter himself fleeing, but spied the back of what I later learned was some sort of reanimation of the murdered man. All this and I hadn't even met Mr. Elis yet!
+
+I gathered together with Max, a doctor, and the curious (and injured) beast of a man, Jackson Elis, who offered us a quick getaway. I didn't have much to fear as the police were closing, but neither did I have much to offer and we four went back to Elis's Park Avenue apartment.
+
+Following a short introduction to Dr. Hughes (an archeologist of dubious specialty), Mr. Elis layed out his charge to us. Something unpleasant (evil? dark? it wasn't clear) was emerging and though he has been fighting it, he believed he needed us (plus a couple others) to become Special Forces in a suicide mission to save humanity. I couldn't quick tell if he'd been fighting too long or too hard, but it was obvious he believed in both the significance and the fatality of his (our?) crusade. I'm not even sure we all agreed to help, but we will be heading to the Morgan and Dupuy Christian Funeral Home tomorrow morning to try to discover more about this trumpet and the man weilding it.
+
+# Saturday, December 9, 1922 (prelude)
+
+I was restless all night. The bed was more comfort than I've had in half a decade, but the questions that have been in the mist these last few years have started to call me by name. Who was that shooter? Who had been shot? These questions felt almost inconsequential as we would wait for Mr. Elis's police contacts to reveal details to him. It was the inconceivable questions that kept me up.
+
+What is gained by reanimating bodies? Was the state of these novel creatures malevolent? sorrowful? lost? feral? What is it that makes these relics so powerful? Why had it activated? An inanimate object has no motivation or will and yet rational and faithful people have bound sentiments to artifacts (and even remains) for eons. What agency exists in heirloom tools, a bit of cross, a fingerbone, or a trumpet? Today I will hold one that has demonstrated its efficaciousness and learn its nature.
+
+# Saturday, December 9, 1922
+
+Tomorrow and tomorrow and tomorrow has been awful enough, but we may be reaching the final couplet, if not the [last syllable](https://www.poetryfoundation.org/poems/56964/speech-tomorrow-and-tomorrow-and-tomorrow). I called on George Morgan this morning and was single-minded that Leroy Turner would not play that trumpet again and would not reach the cemetery. Despite my best efforts, he arrived and began marching before I could intervene and my cursed size held me from reaching him. The crowd terrified as the casket burst open and whatever was left of Louis Fayette hopped up just like the man from the club. Like a missle, I locked on Mr. Turner and charged forward. Dropped to my knees by a blast of power like I've never known, I had to give chase instead, but not before I saw him and guessed we were both enthralled by his instrument.
+
+<script async src="//genius.codes"></script>
